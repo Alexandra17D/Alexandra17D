@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Alexandra17D
 - 👀 I’m interested in chemistry, science, biology, math, physics, literature reviews, scientific articles, study is my love
-- 🌱 I’m currently learning at school
+- 🌱 I’m currently study at university
 - 💞️ I’m looking to collaborate on various projects related to science, in the field of chemistry, physics, related to science, in the field of chemistry, physics e.t.c
 - 📫 How to reach me ...
 
